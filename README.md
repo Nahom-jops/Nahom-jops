@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning cyber Security
 - 💞️ I’m looking to collaborate on web tech
 - 📫 How to reach me? Email me using nahom.jops@gmail.com
-- 😄 Pronouns: Shadow Hunter
+- 😄 Pronouns: Mr/He
 - ⚡ Fun fact: aspire, inspire before we expire!
 
 <!---
